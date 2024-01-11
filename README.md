@@ -1,16 +1,14 @@
-### Hi there 👋
+#Angel Gabrial Urquilla
+### ME  
+Born in Califonia but compltly raised in Texas 
+CS is my favorite class in high school
+I'm a High School Junior  
+I like waching youtude and play games
+hade cancer for 3 year when I was in middile school
 
-<!--
-**CodeAngelUr/CodeAngelUr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Favorits 
+- Color: Blue
+- Ice Cream: Cookies & Cream
+- Animal: Ravens
+- Movies: Book of Life, How to trian you drago, Puss and Boots the last Wish
+- Games: Zelda BoTW and ToTK
