@@ -10,6 +10,6 @@ hade cancer for 3 year when I was in middile school
 - Color: Blue
 - Ice Cream: Cookies & Cream
 - Animal: Ravens
-- Movies: Book of Life, How to trian you drago, Puss and Boots the last Wish
+- Movies: Book of Life, How to trian you drago, Puss n Boots and the last Wish
 - Book: Eragon 
 - Games: Zelda BoTW and ToTK
